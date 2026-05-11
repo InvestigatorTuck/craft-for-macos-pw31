@@ -1,4 +1,4 @@
-
+ultimate Extension for Craft for macOS - offline access and goal tracking offers the most advanced Craft for macOS extension, with offline access and goal tracking. Ideal for
 
 
 
